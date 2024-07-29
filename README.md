@@ -1,2 +1,1 @@
-# shuangshouzhakou
-双手炸扣
+# 全力
